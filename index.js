@@ -1,0 +1,1 @@
+const thero = 'Alenka';
