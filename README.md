@@ -1,1 +1,1 @@
-shelter vowel note poet composition nuts asleep clock current lie brave getting stand tribe recall
+satisfied bent explore police perfectly dance once perfectly smell idea diameter feathers grandfather stranger condition
