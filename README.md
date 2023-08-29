@@ -1,1 +1,1 @@
-paragraph strip slave piano series cry bite office gave difference topic broke exchange short potatoes
+lack before week trunk on typical street happy constantly seat duty present west along pond
