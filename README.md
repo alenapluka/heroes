@@ -1,1 +1,1 @@
-just leave rubbed star sharp charge gas slight cannot prevent leaf library perfect think lying
+rate where faster simple duty direction tight tears soil limited surprise feel attached gun oldest
