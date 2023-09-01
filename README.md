@@ -1,1 +1,1 @@
-rate where faster simple duty direction tight tears soil limited surprise feel attached gun oldest
+daughter vegetable human fall drive speech noon excitement sad his cowboy make source duck note
