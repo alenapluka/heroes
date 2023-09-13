@@ -1,1 +1,1 @@
-claws each consider heavy hurt wife against mother expect mission eventually black dug western measure
+syllable meant book wooden wonderful beat fellow anyway load aside public hand organization grown snow
