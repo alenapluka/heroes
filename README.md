@@ -1,1 +1,1 @@
-corner cost attached bear or is edge knew bus roof period truck slope price locate
+matter manufacturing ordinary gentle sit supper entire main smoke pole running glad ice church everywhere
