@@ -1,1 +1,1 @@
-organized noun itself ate mostly upper milk correct realize stranger corner paid shore care give
+caught split ask inch shine laid anywhere voice foreign combination neck open see throat graph
