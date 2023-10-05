@@ -1,1 +1,1 @@
-caught split ask inch shine laid anywhere voice foreign combination neck open see throat graph
+else verb usual coal journey walk cry monkey then mark dear term over driving habit
