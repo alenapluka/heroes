@@ -1,1 +1,1 @@
-birthday brave mother blanket judge own held work blue halfway unit fell eat elephant ready
+rule gather coming simple breath journey tribe opinion numeral foot voyage definition organized warn hearing
