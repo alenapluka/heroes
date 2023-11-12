@@ -1,1 +1,1 @@
-rule gather coming simple breath journey tribe opinion numeral foot voyage definition organized warn hearing
+start smile title bigger exist price driver teeth duty model horse are pocket fewer straight
