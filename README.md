@@ -1,1 +1,1 @@
-been fairly compare south social go zebra size exercise purpose grown regular explore truck eventually
+greatly something buffalo sound face star cell change folks mind previous pride proud slave habit
