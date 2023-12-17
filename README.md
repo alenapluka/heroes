@@ -1,1 +1,1 @@
-small highway smallest together joy done smallest map brain highest organized direct concerned notice molecular
+right exactly group happy turn shot leaf decide actual except mighty place stared sit consist
