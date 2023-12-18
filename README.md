@@ -1,1 +1,1 @@
-right exactly group happy turn shot leaf decide actual except mighty place stared sit consist
+know order citizen union dig sudden like tired dot course depend zulu symbol engineer found
