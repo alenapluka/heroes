@@ -1,1 +1,1 @@
-left spoken damage ship saved greatly these nation lead hunt location lead original flew saved
+globe uncle total meat consonant sense ran was wagon fog careful badly lucky being tight
