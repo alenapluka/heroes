@@ -1,1 +1,1 @@
-globe uncle total meat consonant sense ran was wagon fog careful badly lucky being tight
+more bow torn proper prepare gray street soft leader mail thick hat outer officer nearby
